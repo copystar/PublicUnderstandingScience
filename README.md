@@ -26,36 +26,4 @@ I understand that the topic of the recent government library closures by the fed
 
 The future is what we create in the present. Investing in libraries means that future generations can see further than they can do today. 
 
-----
-
-In 2013, Department of Fisheries and Oceans (DFO) science library consolidated from 11 locations to four. Basically, the government has assured us that it is taking all the collections from all of the locations and consolidating them into four locations, supposedly making sure all unique items are saved. They are also disposing duplicates as well as materials that aren’t core to their mission and letting go of the equivalent of 9.7 staff members.
-
-There is some misgivings about these assurances.
-
-But this is just the most recent round of cuts that we know of The Conservative Government has been aggressively closing Federal Libraries that serve government employees and the Canadian people. 
-
-Library closures in 2013 and 2012:
-
-the libraries of Human Resources and Skills Developments
-The library of the Citizenship and Immigration
-The National Capital Commission
-The library of Transport Canada
-Public Works and Government Services
-
-And there were other serious consolidations, with Canada Revenue Agency turning  its 9 libraries into one, Parks Canada turning their five libraries into one and Natural Resources closing six of its 14 libraries.
-
-People are concerned because these closures the DFO closures - meant to save only $400,000 are being implemented so quickly that there is a huge concern that unique historical materials that might prove crucial to our understanding of our natural heritage is being thrown away. 
-
-The procedure has happened has been so rushed that according to documents from the DFO office, only 160 items were discarded. And yet there was a $22,000 cost to remove excess book material.
-
-There have been assurances that work is being digitzed but the agency of Library and Archives Canada has suffered from their own staggering cuts which has resulted in many of their staff being let go - many of whom who were involved in digitizing efforts.
-
-Green Party Leader Elizabeth May thinks that it may be illegal.
-"These materials are not the property of any government of the day to dispose of casually," said May in an interview with CBC News. "The government or the department is not allowed to dispose of them willy-nilly."
-Green Party Leader Elizabeth May says she wants to know if Library and Archives Canada signed off on the disposal of books and research material from closing federal science libraries. (Sean Kilpatrick/Canadian Press)
-May said the handling of library material contravenes sections of the Library and Archives Canada Act. Section 16 of the act says that "all publications that have become surplus to the requirements of any government institution shall be placed in the care and control of the Librarian and Archivist."
-Section 12 points out publications can't be disposed of without the "written consent of the Librarian or Archivist."
-
-
-
 
